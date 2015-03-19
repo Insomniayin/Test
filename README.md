@@ -1,2 +1,2 @@
 http://insomniayin.github.io/Test.
-yzz1379747422.eicp.net
+http://yzz1379747422.eicp.net.
